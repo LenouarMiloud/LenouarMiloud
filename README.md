@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Miloud LENOUAR Software Engineer and Android Developer<br>I'm currently work as a freelancer <br>I'm looking to join a software company to collaborate with others<br>
+I'm Miloud LENOUAR Software Engineer and Android Developer<br>I'm currently work as a freelancer(Android App Developer || Graphic Designer) <br>I'm looking to join a software company to collaborate with others<br>
 
 
 ## 🌐 Socials:
